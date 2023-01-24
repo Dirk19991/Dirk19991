@@ -6,4 +6,4 @@
 
 Связаться со мной можно в [Telegram](https://t.me/Dirk19991).
 
-![](https://komarev.com/ghpvc/?username=Dirk19991)
+
